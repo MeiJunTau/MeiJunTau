@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MeiJunTau
+- 👀 I’m interested in 📚,🎼,🪩
+- 🌱 I’m currently learning 🐍
